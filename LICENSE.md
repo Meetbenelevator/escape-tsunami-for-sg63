@@ -1,4 +1,4 @@
-#  
+#  escape tsunami for brainrots smart Script offers the most advanced escape tsunami for brainrots Script, with auto-collect and god mode. Perfect for
 
 
 
